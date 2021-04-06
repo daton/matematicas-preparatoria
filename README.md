@@ -1,6 +1,6 @@
 # Política de Privacidad, Matematicas preparatoria
 * Efectiva desde: 1 de Abril de 2021.
-* Última revisión: 1 de Abril de 2021.
+* Última revisión: 6 de Abril de 2021.
 
 
 ## Introducción
